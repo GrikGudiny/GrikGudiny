@@ -1,9 +1,9 @@
-- 👋 Hi, I’m @GrikGudiny
+- 👋 Hi, I’m GrikGudiny
 - 👀 I’m interested in
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me (anonimus)
 - 😄 Pronouns: Ukraine
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ..
 
 <!---
 GrikGudiny/GrikGudiny is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
