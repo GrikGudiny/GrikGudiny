@@ -2,7 +2,7 @@
 - 👀 I’m interested in
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me (anonimus)
-- 😄 Pronouns: Ukraine
+- 😄 Pronouns: Ukraine love 
 - ⚡ Fun fact:
 
 <!---
