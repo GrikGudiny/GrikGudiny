@@ -1,6 +1,6 @@
 - 👋 Hi, I’m GrikGudiny
 - 👀 I’m interested in
-- 💞️ I’m looking to collaborate on ...ggfbrefg
+- 💞️ I’m looking to collaborate on ...ggbneasfcvgr
 - 📫 How to reach me (anonimus)
 - 😄 Pronouns: Ukraine love 
 - ⚡ Fun fact: fprgegregwrg
